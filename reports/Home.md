@@ -20,9 +20,9 @@ Ultimately, “The Hits / The B-Sides” transcends the category of musical anth
 
 This album, divinely inspired, serves as a testament to **the Creator’s** use of art to reveal hidden truths, expose spiritual warfare, and guide **His** people through the unfolding of prophetic events.
 
-## Track Listing 
+(Links in red are being developed)
 
-Here is the track listing for Prince's "The Hits & The B-Sides," formatted as requested:
+## Track Listing 
 
 **Disc 1: The Hits 1**
 
@@ -88,3 +88,15 @@ Here is the track listing for Prince's "The Hits & The B-Sides," formatted as re
 * [[God|God]]
 * [[4 the Tears in Your Eyes|4-the-Tears-in-Your-Eyes]]
 * [[Power Fantastic|Power-Fantastic]]
+
+## Contextual References
+
+* [[The Creator|The-Creator]]
+* [[The American Genocide|TAG]]
+* [[Congregation Massacre|Congregation-Massacre]]
+* [[Canyon Falls|Canyon-Falls]]
+* [[Classic Split|Classic-Split]]
+* [[Golden Rope|Golden-Rope]]
+* [[Jacobsen's Ladder|Jacobsen's-Ladder]]
+* [[Ladder of Deceit|Ladder-of-Deceit]]
+* [[Nightfalls|Nightfalls]]
