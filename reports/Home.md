@@ -26,7 +26,7 @@ Here is the track listing for Prince's "The Hits & The B-Sides," formatted as re
 
 **Disc 1: The Hits 1**
 
-* [[When Doves Cry|When-Doves-Cry]]
+* [[When the Doves Cry|When-the-Doves-Cry]]
 * [[Pop Life|Pop-Life]]
 * [[Soft and Wet|Soft-and-Wet]]
 * [[I Feel for You|I-Feel-for-You]]
