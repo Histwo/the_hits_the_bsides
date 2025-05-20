@@ -23,3 +23,7 @@ Ultimately, “The Hits / The B-Sides” transcends the category of musical anth
 - And the promise of deliverance and divine fulfillment through separation and reunion.
 
 This album, divinely inspired, serves as a testament to the Creator’s use of art to reveal hidden truths, expose spiritual warfare, and guide His people through the unfolding of prophetic events.
+
+## About This Repository 
+
+This collection of reports shares the Creator's insights into the real meanings behind His inspired song lyrics. You might find that the true stories and situations in these songs are very different from what people commonly believe the song's meaning is, especially when you learn the actual setting, the main idea, or who is speaking (the protagonist) or who the song is about. These reports are designed to help you understand the songs the way the Creator intended. By reading them, you'll be able to listen to the music with a deeper understanding. When you do, these songs will give you direct access to the truth about many things that happened during The American Genocide (TAG), including the actions taken and the situations that arose. You'll also learn the truth about the ways people were manipulated and the tactics used during TAG, some of which have long been used on American citizens without them even realizing it, often when they are asleep. Finally, through these songs, you'll get a personal, firsthand look at the experiences of someone who was a victim of one of the acts committed during The American Genocide.
