@@ -22,60 +22,69 @@ This album, divinely inspired, serves as a testament to **the Creator’s** use 
 
 ## Track Listing 
 
-| Title/Track | Situation |
-|---|---|
-| [["When Doves Cry"|When-Doves-Cry]] | A mother's desperate attempt to shield her remaining child from the horrors of a **Congregation Massacre** at Mount Calvary Baptist Church. |
-| [["Pop Life"|Pop-Life]] | To be added. |
-| [["Soft and Wet"|Soft-and-Wet]] | To be added. |
-| [["I Feel for You"|I-Feel-for-You]] | To be added. |
-| [["Why You Wanna Treat Me So Bad?"|Why-You-Wanna-Treat-Me-So-Bad]] | To be added. |
-| [["When You Were Mine"|When-You-Were-Mine]] | To be added. |
-| [["Uptown (Single Version)"|Uptown-Single-Version]] | To be added. |
-| [["Let's Go Crazy"|Lets-Go-Crazy]] | To be added. |
-| [["1999 (Edit)"|1999-Edit]] | To be added. |
-| [["I Could Never Take the Place of Your Man"|I-Could-Never-Take-the-Place-of-Your-Man]] | To be added. |
-| [["Nothing Compares 2 U (Live feat. Rosie Gaines)"|Nothing-Compares-2-U-Live-feat.-Rosie-Gaines]] | To be added. |
-| [["Adore (Edit)"|Adore-Edit]] | To be added. |
-| [["Pink Cashmere"|Pink-Cashmere]] | To be added. |
-| [["Alphabet St."|Alphabet-St]] | To be added. |
-| [["Sign "☮" the Times (Single Version)"|Sign-Peace-the-Times-Single-Version]] | To be added. |
-| [["Thieves in the Temple"|Thieves-in-the-Temple]] | To be added. |
-| [["Diamonds and Pearls (Edit)"|Diamonds-and-Pearls-Edit]] | To be added. |
-| [["Controversy (Single Version)"|Controversy-Single-Version]] | To be added. |
-| [["Dirty Mind"|Dirty-Mind]] | To be added. |
-| [["I Wanna Be Your Lover (Single Version)"|I-Wanna-Be-Your-Lover-Single-Version]] | To be added. |
-| [["Head"|Head]] | To be added. |
-| [["Do Me, Baby (Edit)"|Do-Me-Baby-Edit]] | To be added. |
-| [["Delirious (Edit)"|Delirious-Edit]] | To be added. |
-| [["Little Red Corvette"|Little-Red-Corvette]] | To be added. |
-| [["I Would Die 4 U (Single Version)"|I-Would-Die-4-U-Single-Version]] | To be added. |
-| [["Raspberry Beret"|Raspberry-Beret]] | To be added. |
-| [["If I Was Your Girlfriend (Edit)"|If-I-Was-Your-Girlfriend-Edit]] | To be added. |
-| [["Kiss (Single Version)"|Kiss-Single-Version]] | To be added. |
-| [["Peach"|Peach]] | To be added. |
-| [["U Got the Look"|U-Got-the-Look]] | To be added. |
-| [["Sexy M.F. (Edit)"|Sexy-M.F.-Edit]] | To be added. |
-| [["Gett Off (Edit)"|Gett-Off-Edit]] | To be added. |
-| [["Cream (NPG Version)"|Cream-NPG-Version]] | To be added. |
-| [["Pope"|Pope]] | To be added. |
-| [["Purple Rain"|Purple-Rain]] | To be added. |
-| [["Hello"|Hello]] | To be added. |
-| [["2gether"|2gether]] | To be added. |
-| [["Escape"|Escape]] | To be added. |
-| [["Gotta Stop (Messin' About)"|Gotta-Stop-Messin-About]] | To be added. |
-| [["Horny Toad"|Horny-Toad]] | To be added. |
-| [["Feel U Up"|Feel-U-Up]] | To be added. |
-| [["Girl"|Girl]] | To be added. |
-| [["I Love U in Me"|I-Love-U-in-Me]] | Manipulation of Baby |
-| [["Erotic City (Edit)"|Erotic-City-Edit]] | To be added. |
-| [["Shockadelica"|Shockadelica]] | To be added. |
-| [["Irresistible Bitch"|Irresistible-Bitch]] | To be added. |
-| [["Scarlet Pussy"|Scarlet-Pussy]] | To be added. |
-| [["La, La, La, He, He, Hee"|La-La-La-He-He-Hee]] | To be added. |
-| [["She's Always in My Hair"|Shes-Always-in-My-Hair]] | To be added. |
-| [["17 Days"|17-Days]] | To be added. |
-| [["How Come U Don't Call Me Anymore"|How-Come-U-Dont-Call-Me-Anymore]] | To be added. |
-| [["Another Lonely Christmas"|Another-Lonely-Christmas]] | To be added. |
-| [["God (Love Theme from Purple Rain) [Instrumental]"|God-Love-Theme-from-Purple-Rain-Instrumental]] | To be added. |
-| [["4 the Tears in Your Eyes"|4-the-Tears-in-Your-Eyes]] | To be added. |
-| [["Power Fantastic"|Power-Fantastic]] | To be added. |
+Here is the track listing for Prince's "The Hits & The B-Sides," formatted as requested:
+
+**Disc 1: The Hits 1**
+
+* [[When Doves Cry|When-Doves-Cry]]
+* [[Pop Life|Pop-Life]]
+* [[Soft and Wet|Soft-and-Wet]]
+* [[I Feel for You|I-Feel-for-You]]
+* [[Why You Wanna Treat Me So Bad?|Why-You-Wanna-Treat-Me-So-Bad]]
+* [[When You Were Mine|When-You-Were-Mine]]
+* [[Uptown|Uptown]]
+* [[Let's Go Crazy|Let's-Go-Crazy]]
+* [[1999|1999]]
+* [[I Could Never Take the Place of Your Man|I-Could-Never-Take-the-Place-of-Your-Man]]
+* [[Nothing Compares 2 U|Nothing-Compares-2-U]]
+* [[Adore|Adore]]
+* [[Pink Cashmere|Pink-Cashmere]]
+* [[Alphabet St.|Alphabet-St]]
+* [[Sign 'O' the Times|Sign-O-the-Times]]
+* [[Thieves in the Temple|Thieves-in-the-Temple]]
+* [[Diamonds and Pearls|Diamonds-and-Pearls]]
+* [[7|7]]
+
+**Disc 2: The Hits 2**
+
+* [[Controversy|Controversy]]
+* [[Dirty Mind|Dirty-Mind]]
+* [[I Wanna Be Your Lover|I-Wanna-Be-Your-Lover]]
+* [[Head|Head]]
+* [[Do Me, Baby|Do-Me-Baby]]
+* [[Delirious|Delirious]]
+* [[Little Red Corvette|Little-Red-Corvette]]
+* [[I Would Die 4 U|I-Would-Die-4-U]]
+* [[Raspberry Beret|Raspberry-Beret]]
+* [[If I Was Your Girlfriend|If-I-Was-Your-Girlfriend]]
+* [[Kiss|Kiss]]
+* [[Peach|Peach]]
+* [[U Got the Look|U-Got-the-Look]]
+* [[Sexy M.F.|Sexy-M.F.]]
+* [[Gett Off|Gett-Off]]
+* [[Cream|Cream]]
+* [[Pope|Pope]]
+* [[Purple Rain|Purple-Rain]]
+
+**Disc 3: The B-Sides**
+
+* [[Hello|Hello]]
+* [[200 Balloons|200-Balloons]]
+* [[Escape|Escape]]
+* [[Gotta Stop (Messin' About)|Gotta-Stop-Messin-About]]
+* [[Horny Toad|Horny-Toad]]
+* [[Feel U Up|Feel-U-Up]]
+* [[Girl|Girl]]
+* [[I Love U in Me|I-Love-U-in-Me]]
+* [[Erotic City|Erotic-City]]
+* [[Shockadelica|Shockadelica]]
+* [[Irresistible Bitch|Irresistible-Bitch]]
+* [[Scarlet Pussy|Scarlet-Pussy]]
+* [[La, La, La, He, He, Hee|La-La-La-He-He-Hee]]
+* [[She's Always in My Hair|She's-Always-in-My-Hair]]
+* [[17 Days|17-Days]]
+* [[How Come U Don't Call Me Anymore?|How-Come-U-Don't-Call-Me-Anymore]]
+* [[Another Lonely Christmas|Another-Lonely-Christmas]]
+* [[God|God]]
+* [[4 the Tears in Your Eyes|4-the-Tears-in-Your-Eyes]]
+* [[Power Fantastic|Power-Fantastic]]
