@@ -66,7 +66,7 @@ This album, divinely inspired, serves as a testament to **the Creator’s** use 
 | [["Horny Toad"|Horny-Toad]] | To be added. |
 | [["Feel U Up"|Feel-U-Up]] | To be added. |
 | [["Girl"|Girl]] | To be added. |
-| [["I Love U in Me"|I-Love-U-in-Me]] | To be added. |
+| [["I Love U in Me"|I-Love-U-in-Me]] | Manipulation of Baby |
 | [["Erotic City (Edit)"|Erotic-City-Edit]] | To be added. |
 | [["Shockadelica"|Shockadelica]] | To be added. |
 | [["Irresistible Bitch"|Irresistible-Bitch]] | To be added. |
